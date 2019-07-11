@@ -1,1 +1,1 @@
-Una traducción de artículos en francés al español
+Traducciones de artículos del francés al español
